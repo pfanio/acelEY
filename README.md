@@ -1,1 +1,1 @@
-# acelEY
+# Aceleração EY
